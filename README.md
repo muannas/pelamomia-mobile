@@ -1,1 +1,0 @@
-# pelamomia-mobile
